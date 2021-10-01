@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @sasounkr
-- 👀 I’m interested in ... something
-- 🌱 I’m currently learning ... something
-- 💞️ I’m looking to collaborate on ... something
+- 👀 I’m interested in ... conquering the world
+- 🌱 I’m currently learning ... how to defeat my enemies
+- 💞️ I’m looking to collaborate on ... military strategies
 - 📫 How to reach me ... messenger pigeon
 
 <!---
